@@ -1,0 +1,2 @@
+# SPAMSMS
+gunakan dengan bijak
